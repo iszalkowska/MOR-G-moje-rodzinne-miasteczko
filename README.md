@@ -14,6 +14,10 @@ Pałac zbudowany w stylu barokowym w I połowie XVIII wieku na dawnych murach ob
 
 ![PAŁAC](http://www.polskaniezwykla.pl/pictures/original/270589.jpg)
 
+###RATUSZ
+Ratusz w Morągu - morąski ratusz położony jest na placu Jana Pawła II w województwie warmińsko-mazurskim w Morągu. Jest budowlą gotycką wybudowaną w 1444 roku. W trakcie działań wojennych w 1945 został zniszczony. Po wojnie został odbudowany. W ratuszu (po II wojnie światowej) mieściło się muzeum im. Johanna Gotfriera Herdera. W latach 2003-2006 został odrestaurowany. Obecnie mieści punkt informacji turystycznej oraz siedziby organizacji samorządowych. W sali konferencyjnej odbywają się sesje rady miasta.
+
+
 ![MORĄG](http://upload.wikimedia.org/wikipedia/commons/a/a5/MoragP6290141aaa.JPG)
 
 
